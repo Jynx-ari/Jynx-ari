@@ -10,7 +10,7 @@
 
 ### 🚀 About Me
 
-A filipino Senior highschool digital creator, hobbyist and clearly wants to be a mechatronics engineer one day (Yuh I love Teto &lt;3) currently on FEU-A SHS ENG. AND I SUCK ON MATH ESPECIALLY ON ALGEBRA:(
+A filipino Senior highschool digital creator, hobbyist and clearly wants to be a mechatronics engineer one day (Yuh I love Teto &lt;3) currently on FEU-A SHS ENG. AND I SUCK ON MATH ESPECIALLY ON ALGEBRA :(
 
 🌱 &nbsp;I'm currently learning **Electrical and Computer Engineering**  
 ⚡ &nbsp;Fun fact: **I like cats and dogs :3 And I wanna play around microcontrollers to SBCs**
